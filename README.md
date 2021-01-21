@@ -6,7 +6,7 @@
 
 
 
-![](M:\work\devcli_\javascript\jstopics_bitbucket\cssLab1\support\img\angular_cssLab1.jpg)
+![](https://ultering.com/it4us/wp-content/uploads/2021/01/angular_cssLab1-1.jpg)
 
 
 
